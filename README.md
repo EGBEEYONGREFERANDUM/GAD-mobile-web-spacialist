@@ -1,0 +1,1 @@
+# GAD-mobile-web-spacialist
